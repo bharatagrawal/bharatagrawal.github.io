@@ -1,2 +1,0 @@
-# bharatagrawal.github.io
-learning
